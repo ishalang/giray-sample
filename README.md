@@ -1,1 +1,0 @@
-# giray-sample
